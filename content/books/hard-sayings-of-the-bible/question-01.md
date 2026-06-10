@@ -10,7 +10,7 @@ slugs: "how-do-we-know-who-wrote-the-bible"
 
 - Thứ hai, việc xác định chính xác khái niệm "tác giả" bao hàm nhiều vấn đề phức tạp. Tôi sẽ giải quyết câu hỏi thứ hai này và sau đó đưa ra câu trả lời ngắn gọn cho câu hỏi thứ nhất.
 
-## I. CÁC SÁCH KHÔNG NÊU TÊN TÁC GIẢ
+## CÁC SÁCH KHÔNG NÊU TÊN TÁC GIẢ
 
 Trước hết, có rất nhiều sách trong Kinh Thánh không nêu rõ tác giả là ai. Ví dụ, chỉ có một trong bốn sách Phúc Âm (Phúc âm Giăng) cung cấp thông tin về tác giả. Ngay cả trong trường hợp đó, thông tin duy nhất chúng ta được biết là *"môn đồ mà Đức Chúa Jesus yêu"* chính là nhân chứng mà lời chứng của người này đang được ghi lại. Từ Giăng 21:20–25, chúng ta không thể biết rõ liệu *"môn đồ mà Đức Chúa Jesus yêu"* có thực sự viết Phúc Âm (hoặc một phần của Phúc Âm) hay không, hay liệu tác giả Phúc Âm có đang nói với chúng ta rằng: “Tôi đã lấy những câu chuyện này từ môn đồ này.” Ngay cả khi môn đồ được yêu mến này thực sự viết Phúc Âm, tên của ông cũng không được nêu ra. Do đó, chúng ta có thể khẳng định rằng không có cuốn Phúc Âm nào cho chúng ta biết tên tác giả của nó. Các sách khác cũng không cho chúng ta biết tên tác giả bao gồm Công Vụ Các Sứ Đồ, Thư Hê-bơ-rơ, 1 Giăng và tất cả các sách lịch sử trong Cựu Ước.
 
@@ -28,7 +28,7 @@ Tất nhiên, truyền thống Giáo hội đã bổ sung những nhận định
 
 Tuy nhiên, điều quan trọng là phải hiểu rằng truyền thống có thể đúng hoặc sai, nhưng truyền thống không phải là Kinh Thánh. Nói cách khác, cá nhân chúng ta có thể dễ dàng chấp nhận ý tưởng rằng truyền thống đã đúng về Mác, nhưng nếu ai đó quyết định rằng tác phẩm đó được viết bởi một người khác ngoài Mác, thì chúng ta không đang thảo luận xem Kinh Thánh đúng hay sai, mà là truyền thống đúng hay sai. Những cuộc thảo luận như vậy không liên quan gì đến tính chính xác của văn bản Kinh Thánh.
 
-## II. CÁC SÁCH CÓ NÊU TÊN TÁC GIẢ
+## CÁC SÁCH CÓ NÊU TÊN TÁC GIẢ
 
 Thứ hai, việc một số sách trong Kinh Thánh có ghi tên tác giả không có nghĩa là chính tác giả đó đã tự tay viết từng chữ trong sách. Thông thường, các tác giả thời cổ đại thường nhờ thư ký viết tác phẩm cho mình. Đôi khi chúng ta biết tên của những thư ký này. Ví dụ, Tẹt-tiu (*Tertius*) là người viết thư Rô-ma (Rô-ma 16:22) và Sinh-vanh (*Silas hay Silvanus*) có lẽ là người viết 1 Phi-e-rơ (1 Phi. 5:12); thư ký của Giê-rê-mi là Ba-rúc. Trong một số trường hợp, những thư ký này dường như được trao rất nhiều quyền hạn độc lập. Điều đó có thể giải thích cho những thay đổi về phong cách giữa các thư (ví dụ, bất cứ ai đã viết bản tiếng Hy Lạp của 1 Phi-e-rơ cũng không phải là người đã viết bản tiếng Hy Lạp kém hơn nhiều của 2 Phi-e-rơ).
 
