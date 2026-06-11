@@ -1,7 +1,6 @@
 ---
-title: "2. Phép Lạ Trong Kinh Thánh Có Thật Không?"
+title: "2. Phép lạ Trong Kinh Thánh có thật không?"
 weight: 3
-slugs: "can-we-believe-in-bible-miracles"
 ---
 
 Trong Tân Ước, chúng ta đọc được về vô số phép lạ. Liệu những điều này có thực sự xảy ra, hay chỉ đơn thuần là những truyền thuyết, hoặc có lẽ là cách người xưa mô tả những điều họ không thể giải thích?

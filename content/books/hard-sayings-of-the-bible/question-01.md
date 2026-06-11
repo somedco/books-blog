@@ -1,7 +1,6 @@
 ---
 title: "1. Ai là người viết Kinh Thánh?"
 weight: 2
-slugs: "how-do-we-know-who-wrote-the-bible"
 ---
 
 **VẤN ĐỀ VỀ TÁC GIẢ** là một vấn đề phức tạp.

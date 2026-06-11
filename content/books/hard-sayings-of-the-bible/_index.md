@@ -2,7 +2,6 @@
 title: "Hard Sayings of The Bible"
 weight: 1
 params:
-  bookFlatSection: true
   bookCollapseSection: true
 ---
 

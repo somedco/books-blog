@@ -1,7 +1,6 @@
 ---
-title: "5. Nhiều con số trong Cựu Ước có sai sót không?"
+title: "5. Số liệu trong Cựu Ước có sai sót không?"
 weight: 6
-slugs: "many-old-testament-numbers-wrong-or-not"
 ---
 
 Trong số những đoạn văn khó hiểu nhất của Kinh Thánh có những phần ghi chép về những con số khổng lồ, chẳng hạn như các danh sách điều tra dân số trong giai đoạn đầu của lịch sử Y-sơ-ra-ên hay những con số liên quan đến các trận chiến của dân tộc này trong những năm cuối cùng.

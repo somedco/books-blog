@@ -1,7 +1,6 @@
 ---
 title: "3. Tại sao Đức Chúa Trời có vẻ giận dữ trong Cựu Ước và đầy tình yêu thương trong Tân Ước?"
 weight: 4
-slugs: "why-god-seem-angry-in-Old-but-loving-in-New"
 ---
 
 Khi nhiều người đọc Cựu Ước, họ có ấn tượng rằng Đức Chúa Trời là Đấng đầy giận dữ và phán xét, nhưng trong Tân Ước, họ lại thấy một Đức Chúa Trời đầy tình yêu thương. Tại sao lại có sự khác biệt này trong Kinh Thánh?

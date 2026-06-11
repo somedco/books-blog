@@ -1,7 +1,6 @@
 ---
 title: "4. Vì sao gia phả trong Kinh Thánh không khớp nhau?"
 weight: 5
-slugs: "why-genealogies-does-not-match-up"
 ---
 
 Người ta thường hỏi liệu các con số trong các gia phả ở Sáng Thế Ký 5:3–32 và Sáng Thế Ký 11:10–32 có thể được dùng để tính toán thời điểm A-đam ra đời hay không. Điều quan trọng nhất cần lưu ý là các tác giả Kinh Thánh chưa bao giờ sử dụng những con số này cho mục đích đó, mặc dù họ đã cung cấp các tổng kết số liệu khác. Chẳng hạn, trong Xuất Ê-díp-tô Ký 12:40, họ ghi chép rằng dân Y-sơ-ra-ên đã ở Ai Cập trong 430 năm, trong 1 Các Vua 6:1 rằng có 480 năm từ khi ra khỏi Ai Cập cho đến khi bắt đầu xây dựng đền thờ dưới thời Vua Sa-lô-môn, và trong Các Quan Xét 11:26 rằng có 300 năm từ khi vào đất hứa cho đến thời của Giép-thê, một quan xét sống vào khoảng năm 1100 TC.
