@@ -10,16 +10,3 @@
   text-align: justify;
   text-justify: inter-word;
 }
-
-body {
-  -webkit-user-select: none;
-  -moz-user-select: none;
-  -ms-user-select: none;
-  user-select: none;
-}
-
-/* Re-enable selection in form fields */
-input, textarea {
-  -webkit-user-select: text;
-  user-select: text;
-}
