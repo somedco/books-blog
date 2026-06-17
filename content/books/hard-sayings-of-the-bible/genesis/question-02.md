@@ -1,5 +1,6 @@
 ---
 title: "1-2 Thơ ca? Hình tượng? hay Lịch sử?"
+slug: "genesis-02"
 weight: 102
 ---
 

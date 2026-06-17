@@ -1,0 +1,29 @@
+---
+title: "1:28 Khai Thác Thiên Nhiên?"
+slug: "genesis-03"
+weight: 103
+---
+
+Lời ban phước mà Đức Chúa Trời phán trong Sáng Thế Ký 1 có khuyến khích chúng ta, nhân loại, đối xử với môi trường theo bất kỳ cách nào chúng ta muốn hay không? Phải chăng sự mất cân bằng sinh thái hiện nay đang diễn ra ở nhiều nơi trên thế giới là kết quả của sự kiêu ngạo trong giáo lý Cơ Đốc giáo đối với thiên nhiên, như Lynn White Jr. đã cáo buộc trong bài viết nổi tiếng của ông, "Những Cội nguồn Lịch sử của Cuộc Khủng hoảng Sinh thái Của Chúng ta" (Science 155 [1967]: 1203–7)?
+
+Người ta đã thừa nhận cách rộng rãi rằng vị thế lãnh đạo về khoa học và công nghệ của phương Tây chắc chắn phải bắt nguồn từ sự mặc khải Kinh Thánh về thực tại của thế giới hữu hình và thực tế là thế giới này có điểm khởi đầu. (Ý niệm về một điểm khởi đầu là điều không thể trong cách nhìn của những quan niệm tuần hoàn về thời gian trước đây). Hơn nữa, di sản Do Thái - Cơ Đốc đã nuôi dưỡng những khái niệm thúc đẩy khoa học như thuyết đồng nhất (*uniformitarianism*), một khái niệm đã đóng vai trò then chốt trong Cuộc Cách mạng Khoa học thế kỷ XVII và Cuộc Cách mạng Công nghiệp thế kỷ XVIII. Thế nhưng, giới học thuật đã rất miễn cưỡng khi nhìn nhận điều này trong thời gian gần đây.
+
+Cuộc tranh luận vừa ngã ngũ thì một lời cáo buộc khác lại được đưa ra, đó là Kinh Thánh dạy rằng "ý muốn của Đức Chúa Trời là con người khai thác thiên nhiên cho những mục đích chính đáng của mình" (White, "Những Cội nguồn Lịch sử," tr. 1205). Theo White, điều chúng ta đã đánh mất về mặt sinh thái chính là tinh thần của thuyết vạn vật hữu linh ngoại giáo (*pagan animism*), vốn cho rằng mọi cây cối, mạch nước, dòng suối và ngọn đồi đều có một linh thần bảo hộ, và linh thần này phải được xoa dịu nếu có bất kỳ sự xâm phạm nào vào môi trường như đốn hạ cây cối, khai thác núi non hay ngăn dòng suối. Cơ Đốc giáo đã chiến thắng thuyết hữu linh sơ khai, White lập luận, và tạo điều kiện để con người khai thác thiên nhiên với thái độ bất cần đối với mọi đối tượng tự nhiên. Sáng Thế Ký 1:28 có thể được viện dẫn như sự cho phép dành cho Cơ Đốc nhân để làm những điều đó.
+
+Tuy nhiên, quan điểm này không chỉ xuyên tạc câu Kinh Thánh này mà còn bóp méo toàn bộ Kinh Thánh. Thật vậy, mọi vật đều bình đẳng là kết quả từ bàn tay sáng tạo của Đức Chúa Trời; do đó, thiên nhiên là thực và mang giá trị, phẩm giá to lớn. Điểm khác biệt duy nhất giữa nhân loại và phần còn lại của công trình sáng tạo là Đức Chúa Trời đã đặt hình ảnh Ngài trong con người, nam cũng như nữ, qua đó ban cho họ giá trị và phẩm giá vượt trội, và đặt toàn bộ trật tự sáng tạo trước mặt họ để họ thay Ngài quản trị.
+
+Món quà "quyền quản trị" trên thiên nhiên không hề có ý định trở thành giấy phép để con người sử dụng hoặc lạm dụng trật tự sáng tạo một cách ích kỷ theo bất kỳ cách nào họ thấy hợp lý. Con người không hề được phép hành xử như những kẻ bạo ngược và tự đặt ra luật lệ cho chính mình; A-đam và Ê-va phải có trách nhiệm trước Đức Chúa Trời và phải chịu giải trình về mọi cách thức họ đã hoặc không vun trồng thế giới tự nhiên xung quanh mình.
+
+Quả thật, các từ "chế ngự" và "quản trị" hàm ý rằng thiên nhiên sẽ không dễ dàng thuận phục và sẽ cần đến một hình thức cưỡng chế nào đó. Bởi vì trật tự sáng tạo đã bị ảnh hưởng bởi tội lỗi trầm trọng không kém gì cặp nhân loại đầu tiên, nên trật tự sáng tạo tự nhiên sẽ không vui lòng hay dễ dàng vâng theo mệnh lệnh của chúng ta. Chúng ta phải bỏ ra nhiều sức lực và năng lượng trong nỗ lực sử dụng thiên nhiên.
+
+Nhưng sự thừa nhận như vậy không hề biện minh cho việc tàn phá đất đai. Việc sử dụng sự ủy quyền này để thực hiện nhiệm vụ như vậy với niềm khoái trá tàn bạo và đồi bại là một sự xuyên tạc. Chỉ khi những gian ác của chúng ta được Đức Chúa Trời chế ngự, chúng ta mới có thể thực thi chức năng này một cách đúng đắn.
+
+Đức Chúa Trời vẫn là Chủ sở hữu của thế giới tự nhiên (Thi Thiên 24:1), và mọi thú vật trong rừng cùng gia súc trên ngọn đồi đều thuộc về Ngài (Thi Thiên 50:10–12). Con người chỉ đơn thuần là những người quản gia dưới quyền Đức Chúa Trời. Trong bất kỳ điều kiện nào, chúng ta cũng không được lạm dụng và chà đạp trật tự tự nhiên vì lợi nhuận nhanh chóng hay chỉ vì niềm vui thích thuần túy khi làm điều đó. Thật vậy, ngay cả Gióp cũng ý thức rằng đất đai sẽ kêu oan nghịch cùng ông nếu, dưới mắt Đức Chúa Trời, Gióp lạm dụng nó (Gióp 31:37–40).
+
+Ngay cả trong sự đổi mới của trời mới đất mới cũng không có sự đoạn tuyệt hoàn toàn và sự bất chấp tuyệt đối đối với trời đất hiện tại. Thay vào đó, ngọn lửa phán xét cuối cùng sẽ chỉ có tác dụng thanh tẩy vì "Bấy giờ các từng trời sẽ có tiếng vang rầm mà qua đi, các thể chất bị đốt mà tiêu tán, đất cùng mọi công trình trên nó đều sẽ bị đốt cháy cả." (2 Phi-e-rơ 3:10). Dẫu vậy, đất sẽ không bị thiêu hủy hoàn toàn!
+
+Lynn White cảm thấy chúng ta sẽ tốt hơn nếu khẳng định, như Francis thành Assisi đã làm, sự bình đẳng của mọi tạo vật, bao gồm cả con người. Điều này sẽ loại bỏ khỏi tâm trí con người bất kỳ ý niệm nào về sự cai trị không giới hạn đối với công trình sáng tạo.
+
+Nhưng sự bình đẳng như vậy không thấu hiểu được khái niệm về hình ảnh của Đức Chúa Trời trong con người. Cây cối, côn trùng, chim chóc và thú rừng đều là những tạo vật của Đức Chúa Trời, nhưng chúng không được ban cho hình ảnh của Ngài; chúng cũng không chịu trách nhiệm trước Đức Chúa Trời về cách cư xử và việc sử dụng công trình sáng tạo. Điều giới hạn nhân loại chính là thực tế rằng mỗi người phải trả lời trước Đức Chúa Trời về việc mình đã sử dụng hoặc lạm dụng toàn bộ trật tự sáng tạo như thế nào.
+
+Nếu bạn hỏi: "Vậy thì, điều gì đã xảy ra với mệnh lệnh được ban cho nhân loại trong sách Sáng Thế Ký?" chúng tôi sẽ trả lời bằng cách lưu ý rằng mệnh lệnh đó vẫn còn nguyên vẹn. Tuy nhiên, nó không nằm ở Sáng Thế Ký 1:28 mà là ở Sáng Thế Ký 2:15. Tại đó, A-đam được giao nhiệm vụ "canh tác" Vườn Ê-đen và "giữ gìn" Vườn.

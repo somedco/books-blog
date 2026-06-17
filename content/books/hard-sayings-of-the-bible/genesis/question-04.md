@@ -1,0 +1,13 @@
+---
+title: "2:16-17 Một thử thách bất công?"
+slug: "genesis-04"
+weight: 104
+---
+
+Tại sao Đức Chúa Trời lại thử thách A-đam bằng cách đặt cây biết điều thiện và điều ác trong vườn và rồi truyền lệnh cho ông chớ ăn trái nó — đặc biệt khi, theo sự biết trước của Đức Chúa Trời, Ngài biết chắc ông sẽ làm đúng điều đó? Mục đích của toàn bộ sự việc này là gì? Rốt cuộc thì điều đó sẽ chứng minh được điều gì?
+
+Đấng Sáng Tạo đã thấy khôn ngoan và thích đáng khi thiết lập một sự thử thách đặc biệt về sự vâng lời cho con người (và cuối cùng là cả người nữ) mà Ngài đã dựng nên. Vì A-đam và Ê-va được tạo dựng cách hoàn hảo từ tay Đấng Tạo Hóa, họ bị ràng buộc bởi chính các quy luật trong bản tánh của mình để yêu kính, tôn vinh và vâng phục Đấng đã ban cho họ những phẩm giá ấy. Tuy nhiên, tình yêu, sự tôn vinh và lòng vâng phục này vẫn là những ân tứ chưa được thử nghiệm. Do đó, cần phải có một sự thử thách hoặc kiểm nghiệm lòng vâng phục của họ nếu họ thực sự muốn là những hữu thể tự do có trách nhiệm đạo đức.
+
+Tuy nhiên, bài thử thách này không thể là việc vi phạm một bổn phận đạo đức như những điều trong *Mười Điều Răn*; nó phải là một lệnh cấm đơn giản, đóng vai trò như một bài kiểm tra thích hợp cho lòng trung tín của họ. Khi họ được tự do thỏa thích dùng trái của mọi cây khác trong vườn, việc vi phạm điều răn này sẽ là một hành động nổi loạn trực tiếp chống lại mệnh lệnh do Đức Chúa Trời ban ra. Phương cách Đức Chúa Trời chọn phải là việc vi phạm cái được gọi là Luật Thực Định (*Positive Law*) - tức là điều đúng chỉ vì Đức Chúa Trời phán nó là đúng - hoặc một điều có vẻ như là một sắc lệnh tùy ý. Lợi thế của việc sử dụng một bài thử thách với hình thức và phương thức đơn giản như vậy là, nếu những người phàm này vượt qua được một thử thách lớn hơn và đứng vững, họ có thể đã mong đợi những phần thưởng tương xứng với cuộc chiến và lập luận rằng họ đã tự mình kiếm được sự cứu rỗi. Nhưng sự thử thách ở đây đơn giản chỉ là việc vâng nghe một mệnh lệnh từ Đức Chúa Trời. Điều này sẽ minh chứng cho sự công chính trong những hành động tiếp theo của Đức Chúa Trời, đồng thời cho thấy rằng những người phàm từ tay Đức Chúa Trời quả thực sở hữu một sự tự do nhất định, và họ cũng sẽ phải chịu trách nhiệm về sự tự do đó.
+
+Như vậy, không có gì là vô lý hay làm giảm đi sự tôn kính đối với Đấng Tối Cao trong sự thử thách này. Những sự hoàn hảo của Đức Chúa Trời đòi hỏi điều tương tự từ các tạo vật của Ngài. Nhưng khi những sự hoàn hảo đó tạm thời được ban cho dựa trên sự sáng tạo, sự tốt lành này cần phải được thử nghiệm thêm trước khi có thể khẳng định rằng nó tồn tại vĩnh viễn từ thời điểm đó trở đi.

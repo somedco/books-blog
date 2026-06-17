@@ -1,5 +1,6 @@
 ---
 title: "1-2 Elohim hay Yahweh?"
+slug: "genesis-01"
 weight: 101
 ---
 
