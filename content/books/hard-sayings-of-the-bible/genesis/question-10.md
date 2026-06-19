@@ -1,0 +1,40 @@
+---
+title: "3:16 Người nữ bị trừng phạt như thế nào?"
+slug: "genesis-10"
+weight: 110
+---
+
+Ý nghĩa của phần thứ hai trong hình phạt dành cho người nữ xoay quanh hai từ rất quan trọng có một lịch sử dịch thuật vô cùng đáng kinh ngạc: "sự dục vọng" và "sẽ cai trị." Hiếm khi nào một lỗi dịch thuật lại gây ra nhiều tai hại đến vậy khi nó đã được thể chế hóa.
+
+Có phải do hậu quả của Sự Sa Ngã, phụ nữ tự nhiên bộc lộ những ham muốn tình dục áp đảo đối với chồng mình chăng? Và nếu đúng như vậy, phải chăng Đức Chúa Trời đồng thời truyền lệnh cho người chồng thực thi thẩm quyền trên vợ mình? Dưới hình thức này hay hình thức khác, hầu hết các nhà giải kinh bảo thủ đều trả lời quả quyết là "Có" cho cả hai câu hỏi trên và viện dẫn Sáng Thế Ký 3:16 làm cơ sở cho câu trả lời của họ. Nhưng liệu chính văn bản có chịu đựng được sức nặng của những tuyên bố quan trọng như vậy chăng?
+
+Từ Hê-bơ-rơ *tešûqâh*, nay hầu như được dịch phổ biến là "sự dục vọng", trước đây đã được dịch là "sự quay hướng". Từ này chỉ xuất hiện ba lần trong Cựu Ước Hê-bơ-rơ: tại đây trong Sáng Thế Ký 3:16, trong Sáng Thế Ký 4:7 và trong Nhã Ca 7:10. Trong số mười hai bản dịch cổ đã biết (Bản Bảy Mươi Hy Lạp, Bản Peshitta tiếng Syriac, Bản Ngũ Kinh Samaritan, Bản Latinh Cổ, Bản Sahidic, Bản Bohairic, Bản Ethiopic, Bản Ả Rập, Bản Hy Lạp của Aquila, Bản Hy Lạp của Symmachus, Bản Hy Lạp của Theodotion và Bản Vulgate tiếng Latinh), hầu hết tất cả (hai mươi mốt trên hai mươi tám lần) đều dịch ba lần xuất hiện của *tešûqâh* này là "sự quay hướng" chứ không phải "sự dục vọng/ham muốn".
+
+Tương tự như vậy, các giáo phụ (Clement thành Rô-ma, Irenaeus, Tertullian, Origen, Epiphanius và Jerome, cùng với Philo, một người Do Thái qua đời khoảng năm 50 SC) dường như không biết đến nghĩa nào khác cho từ *tešûqâh* nầy ngoài bản dịch "sự quay hướng". Hơn nữa, bản dịch Latinh là *conversio* và bản dịch Hy Lạp là *apostrophē* hay *epistrophē*, tất cả đều mang nghĩa "sự quay hướng".
+
+Với lời chứng mạnh mẽ và phổ quát như vậy ủng hộ cho "sự quay hướng" làm sao ý niệm "dục vọng" lại xâm nhập vào tư tưởng sự của người dịch? Một lần nữa, chính Katherine C. Bushnell là người đã thực hiện nghiên cứu tiên phong về vấn đề nầy. Bà truy nguyên nguồn gốc của nó từ một tu sĩ Dòng Đa Minh người Ý tên là Pagnino, người đã dịch Cựu Ước Hê-bơ-rơ. Pagnino, theo nhà phê bình Kinh Thánh khét tiếng Richard Simon, "đã quá sao nhãng các bản dịch cổ của Kinh Thánh để gắn bó với giáo huấn của các ra-bi." Phiên bản của Pagnino được xuất bản tại Lyons năm 1528, bảy năm trước Bản Thánh Kinh tiếng Anh của Coverdale. Giờ đây, ngoại trừ phiên bản tiếng Anh năm 1380 của Wycliffe và Bản Douay năm 1609, cả hai đều được dịch từ Bản Vulgate Latinh, mọi phiên bản tiếng Anh từ thời Pagnino cho đến ngày nay đều đã tiếp nhận cách dịch của Pagnino cho Sáng Thế Ký 3:16.
+
+Các Bản Thánh Kinh tiếng Anh cổ hơn, noi theo Pagnino, đã dịch câu nầy là "Thy lust [or lusts] shall pertayne [pertain] to thy husband" — "Dục vọng [hay những dục vọng] của ngươi sẽ thuộc về chồng ngươi" (hay bản Truyền Thống 1929 dịch là "sự dục vọng ngươi phải xu hướng về chồng"). Rõ ràng, ý nghĩa được Pagnino và những người theo ông gán cho từ nầy là *libido* hay dục vọng xác thịt. Nơi duy nhất mà Bushnell có thể tìm thấy khái niệm như vậy là trong "Mười Lời Rủa Sả Eva" trong Talmud.
+
+Đã đến lúc Hội Thánh cần trở về với ý nghĩa thực sự của từ nầy. Ý nghĩa của Sáng Thế Ký 3:16 đơn giản là: Do hậu quả của tội lỗi mình, Eva sẽ quay hướng khỏi sự nương cậy độc nhất nơi Đức Chúa Trời và bây giờ quay hướng về phía chồng mình. Kết quả sẽ hoàn toàn không dễ chịu chút nào, Đức Chúa Trời đã cảnh báo khi công bố lời rủa sả nầy.
+
+Không nơi nào trong văn bản nầy dạy, và tự nhiên cũng không xác nhận qua những quan sát của chúng ta, rằng từ nay sẽ có khuynh hướng người nữ bị thúc đẩy bởi ham muốn quan hệ tình dục với chồng mình hay với những người nam khác. Đây vừa là sự xuyên tạc văn bản, vừa là ảo tưởng nam giới sinh ra từ một nguồn nào khác chứ không phải từ Kinh Thánh hay bản tính con người. Ngay cả khi từ nầy được giảm nhẹ đi để chỉ có nghĩa là một khuynh hướng hay một xu hướng, chúng ta cũng chẳng tiến xa hơn được chút nào. Những cách dịch như vậy vẫn sẽ bỏ lỡ điểm chính của văn bản Hê-bơ-rơ. Bản Hê-bơ-rơ chép, "Ngươi đang quay hướng khỏi [Đức Chúa Trời!] về phía chồng ngươi, và [do kết quả đó] hắn sẽ cai trị trên ngươi [lợi dụng ngươi]."
+
+Mặc dù văn bản nầy chỉ tiên đoán rằng một số người chồng sẽ lợi dụng vợ mình khi những người vợ nầy quay hướng về chồng sau khi đã quay hướng khỏi Đức Chúa Trời, một số người lập luận rằng động từ thứ hai nầy nên được dịch là "hắn sẽ cai trị trên ngươi." Điều nầy sẽ biến lời phát biểu thành một mệnh lệnh bắt buộc với sức mạnh của một mệnh lệnh gửi đến tất cả các người chồng để cai trị trên vợ mình.
+
+Ngữ pháp Hê-bơ-rơ một lần nữa không cho phép cấu trúc như vậy. Động từ chứa đựng một lời phát biểu đơn giản về tính tương lai; không có một manh mối nào về nghĩa vụ hay tính quy phạm trong động từ nầy. Lập luận khác đi sẽ hợp lý như việc đòi hỏi một động từ trong câu 18 phải được dịch là "Đất sẽ sinh ra gai gốc và cây tật lê." Sau đó, tất cả những nông dân Cơ Đốc sử dụng thuốc diệt cỏ sẽ bị lên án là bất tuân phục Đức Chúa Trời, Đấng đã đòi hỏi đất phải có những gai gốc và tật lê như vậy.
+
+Lời đáp trả thường được lặp lại cho lập luận "sẽ cai trị" này là chuyển sang Sáng Thế Ký 4:7: "Tội lỗi đang nằm phục trước cửa; sự ao ước của nó hướng về ngươi, nhưng ngươi sẽ [hay phải, theo nghĩa bắt buộc] cai trị trên nó." Không còn nghi ngờ gì nữa, cả từ *tešûqâh* ("sự quay hướng") và động từ cai trị đều được tìm thấy trong cả hai ngữ cảnh. Nhưng điều đang được tranh luận là cách tốt nhất để dịch bản Hê-bơ-rơ.
+
+Một số đề xuất tránh cách giải thích truyền thống vốn khăng khăng gán cho động từ cai trị một ý nghĩa bắt buộc. Một cách hiểu tiên đoán rằng Cain, bây giờ bị tội lỗi chi phối và được mô tả như một con thú nằm phục trước cửa, sẽ cai trị trên hắn (em hắn, Abel). Tuy nhiên, đây dường như không phải là điều tác giả muốn nói.
+
+Một cách xử lý ưu việt hơn cho cụm từ nầy sẽ là xem nó như một câu hỏi. (Sự vắng mặt của tiểu từ đặt câu hỏi là một hiện tượng được thấy trong khoảng một nửa các câu hỏi Hê-bơ-rơ.) Do đó chúng ta sẽ dịch là "Nhưng ngươi, ngươi sẽ cai trị trên nó chăng?" hay "Ngươi sẽ làm chủ nó chăng?" (Cách giải thích này cũng được H. Ewald, G. R. Castellino và ở một mức độ nào đó, Claus Westermann ủng hộ.)
+
+Mặc dù nhiều người tin rằng 1 Cô-rinh-tô 14:34 đề cập đến Sáng Thế Ký 3:16 khi chép rằng, "Đàn bà phải làm thinh trong các Hội Thánh. Họ không được phép nói, nhưng phải phục tùng, như Luật Pháp đã dạy,". Khi người Cô-rinh-tô đề cập đến luật pháp (dường như Phao-lô đang trả lời một câu hỏi trước đó họ đã viết cho ông), họ đang đề cập đến luật pháp Do Thái được tìm thấy trong Talmud và Mishnah. Tại đó dạy rằng người nữ không được nói và phải giữ thinh lặng, nhưng điều đó không được dạy trong Cựu Ước!
+
+Cách khả dĩ duy nhất một người có thể liên kết Sáng Thế Ký 3:16 với 1 Cô-rinh-tô 14:34–35 sẽ là nếu phân đoạn Sáng Thế Ký nói rằng các chồng phải cai trị trên vợ mình. Vì cách hiểu như vậy đã được chứng minh là không thể, sự tham chiếu nầy nên được từ bỏ. Chúng ta không nên đặt gánh nặng nào lớn hơn lên dân sự Đức Chúa Trời ngoài những gì được chứng minh trong Lời Đức Chúa Trời.
+
+Về sau trong sự mặc khải của Đức Chúa Trời, Chúa chúng ta sẽ khẳng định một sự phục tùng chức năng trong mối quan hệ hôn nhân, và người chồng sẽ phải chịu trách nhiệm trước Đức Chúa Trời về sự thịnh vượng của vợ và gia đình mình. Tuy nhiên, Sáng Thế Ký 3:16 không mang bất kỳ ý nghĩa nào trong số đó.
+Vậy chúng ta có thể kết luận rằng *tešûqâh* không đề cập đến dục vọng hay ham muốn tình dục của người nữ đối với người nam. Động từ cai trị trên nàng cũng không diễn tả trật tự của Đức Chúa Trời cho các chồng trong mối quan hệ với vợ mình.
+
+*Xem them giải thích cho [Ê-phê-sô 5:22](../../ephesians/ephesians-01); [1 Phi-e-rơ 3:6](../../1peter/1peter-01); và [3:7](../../1peter/1peter-02).*

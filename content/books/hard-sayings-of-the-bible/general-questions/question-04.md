@@ -1,5 +1,6 @@
 ---
 title: "4. Vì sao gia phả trong Kinh Thánh không khớp nhau?"
+slugs: "general-04"
 weight: 5
 ---
 

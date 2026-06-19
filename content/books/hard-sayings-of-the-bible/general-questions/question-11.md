@@ -1,5 +1,6 @@
 ---
 title: "11. Tân Ước có xác nhận tồn tại của ma quỷ?"
+slugs: "general-11"
 weight: 12
 ---
 

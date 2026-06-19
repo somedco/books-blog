@@ -1,0 +1,31 @@
+---
+title: "6:9 Nô-ê có hoàn hảo?"
+slug: "genesis-18"
+weight: 118
+---
+
+Sáng thế Ký 6:9 là một câu Kinh Thánh khó hiểu, vì dường như nó ngụ ý rằng Nô-ê đã đạt đến sự toàn thiện về luân lý và thuộc linh. Làm thể nào Nô-ê có thể đạt được địa vị cao trọng của sự toàn hảo như vậy khi ông sống sau thời kỳ Sa ngã? Há chẳng phải ông cũng chia phần trong bản tính tội lỗi và khuynh hướng sa đọa mà toàn thể nhân loại đã thừa hưởng sao? Nếu ông có chia phần — như hầu hết sẽ công nhận — thì về nghĩa nào mà có thể nói ông là "công bình" và "trọn vẹn"?
+
+Nô-ê, Đa-ni-ên và Gióp được ghi nhớ vì đời sống công bình của họ (Ê-xê-chi-ên 14:14, 20). Nhưng với tư cách là con người, họ không đặt ra tiêu chuẩn cho người khác. Tiêu chuẩn mà họ cùng chia sẻ vẫn là cùng một tiêu chuẩn ngày nay: chính Chúa là Đấng đặt ra tiêu chuẩn. Bản tính và ý muốn của Ngài tạo thành thước đo luân lý và đạo đức cho mọi người khác noi theo.
+
+Từ Hê-bơ-rơ *ṣadîq* (có cùng gốc với từ Hê-bơ-rơ *ṣeḏoeq*) về cơ bản mang ý nghĩa là phù hợp với tiêu chuẩn. Ý niệm nguyên thủy có lẽ là "thẳng thắn." Từ đó nảy sinh ý niệm về một "chuẩn mực" và về việc "đúng đắn." Bộ tiêu chuẩn cho điều gì là đúng về luân lý và đạo đức chỉ được tìm thấy nơi chính Đức Chúa Trời. "Đức Giê-hô-va là công bình trong mọi đường Ngài, Hay làm ơn trong mọi công việc Ngài. " (Thi-thiên 145:17). Vì vậy, các tiêu chuẩn và phán quyết được ban hành trong Lời Ngài là công bình (Thi-thiên 119:144, 160, 172).
+
+Một số cách sử dụng sớm hơn của từ này xuất hiện liên quan đến các quan xét Y-sơ-ra-ên trong việc thi hành chức năng và phán quyết của họ. Họ được cảnh báo: "Các ngươi chớ phạm sự bất nghĩa trong việc xét đoán, chớ thiên vị người nghèo, chớ nể kẻ quyền thế; hãy cứ theo công bình mà xét đoán kẻ lân cận ngươi." *[ṣeḏoeq]* (Lê-vi Ký 19:15). Cùng một loại "công bình" này được áp dụng cho các loại cân và quả cân: "Các ngươi phải có cân thiệt, trái cân bằng đá đúng, một ê-pha thiệt, và một hin thiệt" (Lê-vi Ký 19:36). Như vậy, sự công bình của Đức Chúa Trời chống lại sự gian dối trong thương mại và sự lừa lọc trong tư pháp.
+
+Sự công bình được áp dụng vào ba lĩnh vực của các mối quan hệ cá nhân: luân lý, pháp lý và thần học. Không một trong ba lĩnh vực này nào phụ thuộc vào các chuẩn mực hay thực hành đương thời; sự công bình mà Đức Chúa Trời muốn chỉ có thể được tìm thấy trong các tiêu chuẩn được trình bày trong Lời Ngài. Lĩnh vực luân lý đề cập đến hạnh kiểm của con người đối với nhau. Khía cạnh pháp lý đòi hỏi sự bình đẳng trước pháp luật cho kẻ nhỏ và kẻ lớn, kẻ giàu và kẻ nghèo. Khía cạnh thần học đòi hỏi dân giao ước của Đức Chúa Trời sống một đời sống thánh khiết, theo đuổi con đường do sự công bình của Đức Chúa Trời vạch ra.
+
+Trong trường hợp của Nô-ê, ông đã phù hợp với tiêu chuẩn do Đức Chúa Trời đặt ra. Khi tất cả mọi người chung quanh ông đang đắm mình trong sự dữ và chuốc lấy cơn thịnh nộ và sự phán xét của Đức Chúa Trời, Nô-ê đã để lòng mình theo đuổi con đường tìm thấy nơi thân vị và đặc tính của Đức Chúa Trời. Ông đứng vững và không bị ảnh hưởng bởi mọi điều đang xảy ra chung quanh mình.
+
+Từ *công bình* đơn giản có nghĩa là ông đã chấp nhận và sử dụng tiêu chuẩn công bình cho đời sống và hành động của mình. Nó không ngụ ý sự toàn hảo. Bản thân thuật ngữ này không tự nó thiết lập sự tán thành hoàn toàn đối với các hành động của ông, cũng không hơn gì trường hợp của Ta-ma trong Sáng-thế Ký 38:26. Văn bản bày tỏ một sự đánh giá về sự đúng đắn mang tính so sánh giữa Ta-ma và Giu-đa. Khi Giu-đa bị phơi bày là người ngoại tình mà qua đó Ta-ma đã mang thai, ông nói: "Nàng công bình hơn ta"—nghĩa là nàng có quyền nhiều hơn để hành động như nàng đã làm so với Giu-đa trong những gì ông đã làm. Điều này khó có thể là một sự tán thành trọn vẹn đối với Ta-ma hoặc các hành động của nàng. Cũng vậy, việc sử dụng cùng một thuật ngữ không phải là một sự tán thành trọn vẹn đối với Nô-ê.
+
+Nô-ê đã đáp ứng yêu cầu cơ bản do chuẩn mực Đức Chúa Trời dựng lên, và hạnh kiểm của ông đã chứng minh điều đó. Điều này cũng có thể thấy qua mệnh đề song song "và đồng đi với Đức Chúa Trời" — cùng một cách diễn đạt đã được dùng cho Hê-nóc (Sáng-thế Ký 5:24).
+
+Nhưng điều này vẫn để lại vấn đề Nô-ê được gọi là "trọn vẹn" hay "toàn hảo." Kinh Thánh có một gương mẫu xuất sắc về người "trọn vẹn": Gióp. Người ta nói rằng ông là "trọn vẹn" (Gióp 1:1). Ông cũng tuyên bố rằng mình "trọn vẹn" hay "toàn hảo" trong Gióp 9:21–22, 12:4 và 31:6. Ngay cả dưới sự tấn công dữ dội ngược lại, ông vẫn giữ vững "sự trọn vẹn" của mình (cùng một gốc—Gióp 27:5). Và ông không đơn độc trong ý kiến này, vì vợ ông đã gán cho ông "sự trọn vẹn" (Gióp 2:9). Ngay cả Đức Giê-hô-va trên trời cũng đồng ý rằng Gióp thực sự là "trọn vẹn" hay "toàn hảo" (Gióp 1:8; 2:3).
+
+Mặc dù có tất cả những lời tán dương cao quý này dành cho Gióp, ông biết rằng mình là một tội nhân, vì ông đã hỏi: "Loài người xác thịt thể nào được kể là công bình trước mặt Đức Chúa Trời?" (Gióp 9:2). Ông cũng thừa nhận tội lỗi của mình (Gióp 10:6; 14:16–17). Vì vậy, việc sử dụng từ *trọn vẹn* hay *toàn hảo* không ngụ ý rằng một người đã đạt đến sự hoàn hảo hay một trạng thái mà trong đó người ấy không còn phạm tội nữa. Ngay cả loài thụ tạo trong Ê-đen (có lẽ là Lu-xi-phe) vốn được tạo dựng là "trọn vẹn" cũng bị phát hiện là có khả năng phạm tội (Ê-xê-chi-ên 28:13–15).
+
+Gốc từ Hê-bơ-rơ của từ trọn vẹn bao hàm ý tưởng về sự toàn vẹn. Vì vậy, chúng ta kết luận rằng Nô-ê đã phù hợp với tiêu chuẩn do Đức Chúa Trời đặt ra và đời sống của ông là "toàn vẹn," không thiếu bất kỳ phẩm chất thiết yếu nào.
+
+Cụm từ bổ nghĩa "giữa dòng dõi đương thời của mình" càng chỉ rõ rằng sự công bình và trọn vẹn của Nô-ê nổi bật giữa sự gian ác của những người cùng thời với ông.
+
+Cũng như Gióp phải thừa nhận tội lỗi mình, thì chính Kinh Thánh nói với chúng ta rằng Nô-ê là công bình và trọn vẹn cũng cho chúng ta biết rằng ông đã say sưa vì trái nho (Sáng-thế Ký 9:21). Rõ ràng, vậy thì không có trường hợp nào cho sự toàn hảo và vô tội trong những từ *công bình* và *trọn vẹn* này. Thay vào đó, đây là trường hợp của một người đã đồng đi với Đức Chúa Trời và vui thích làm theo những gì Ngài đã phán và sống theo các tiêu chuẩn mà Ngài đã thiết lập.

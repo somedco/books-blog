@@ -1,0 +1,25 @@
+---
+title: "3:16 Sinh nở là lời nguyền hay phước hạnh?"
+slug: "genesis-09"
+weight: 109
+---
+
+Nếu việc sinh con được Đức Chúa Trời phán ban phước trong Sáng Thế Ký 1:28, cớ sao Đức Chúa Trời lại hoàn toàn đảo ngược phước hạnh này do hậu quả của Sự Sa Ngã? Thật vậy, "những nỗi đau đớn" — một từ cũng đã xuất hiện trong câu 17 trong lời rủa sả dành cho con người — được phán là sẽ gia tăng. Thế nhưng trước đó không hề có bất kỳ nỗi đau nào được đề cập; chỉ toàn là phước hạnh.
+
+Không còn nghi ngờ gì nữa, thuật ngữ này ám chỉ nỗi đau thể xác. Gốc từ của nó bắt nguồn từ một động từ mang nghĩa "làm tổn thương, gây đau đớn hoặc sầu khổ." Liệu nỗi đau nầy nằm trong cơn thống khổ khi sinh nở, hay trong nỗi sầu khổ đi kèm với quá trình nuôi dạy con trẻ, thì không thể xác định một cách rõ ràng; bản văn dường như mở đường cho cả hai cách hiểu.
+
+Katherine C. Bushnell, trong tác phẩm *God's Words to Woman*, đề xuất nên dịch câu 16 theo một cách khác vì bản văn tiếng Hê-bơ-rơ có thể ủng hộ cách dịch mới này. Bà đã chỉ ra rằng một số bản cổ đã gán ý nghĩa “rình rập”, “một cuộc phục kích” hoặc “một cái bẫy” cho từ thường được hiểu là “sinh sôi nảy nở”. Tuy nhiên, ý tưởng về một cái bẫy hay việc rình rập này có thể đã được chuyển từ vị trí thông thường hơn trong Sáng Thế Ký 3:16 về Sáng Thế Ký 3:15. Bushnell sẽ dịch những từ mở đầu của câu 16 như sau: “Ngài phán cùng người nữ rằng: ‘Một cái bẫy đã làm gia tăng nỗi đau khổ và tiếng than thở của ngươi.’”
+
+Bản dịch này về mặt ý nghĩa không khác biệt nhiều so với cách dịch truyền thống “Ta sẽ làm gia tăng rất nhiều…”. Sự khác biệt giữa hai cách hiểu này hoàn toàn nằm ở các dấu nguyên âm tiếng Hê-bơ-rơ trong bản dịch song song, vốn chỉ xuất hiện muộn nhất vào thế kỷ thứ tám Sau Chúa. Sự khác biệt cụ thể như sau (sử dụng chữ in hoa để chỉ văn bản phụ âm gốc tiếng Hê-bơ-rơ và chữ thường để chỉ phần bổ sung dấu nguyên âm sau này): **HaRBah AaRBeh**, “Ta sẽ làm cho gia tăng rất nhiều,” và **HiRBah AoReB**, “đã khiến gia tăng (hoặc làm cho lớn lên) bởi kẻ mai phục.” Hình thức phân từ ARB xuất hiện khoảng mười bốn lần trong sách Giô-suê và được dịch là “đột kích” hoặc “sự rình rập.”
+
+Nếu cách đọc này là chính xác (và một số bản cổ ghi lại từ đó chỉ vài từ trước trong câu 15, có lẽ do đặt sai vị trí), thì “kẻ mai phục” đó chắc chắn chính là con rắn xảo quyệt, tức ma quỷ. Chính hắn là kẻ sẽ làm tăng thêm nỗi buồn khi nuôi dạy con cái. Đây là cách duy nhất chúng ta có thể giải thích tại sao ý niệm về “cái bẫy” hay “sự rình rập” vẫn bám chặt vào bối cảnh này.
+
+Nếu cách đọc này là chính xác (và một số bản cổ ghi lại từ đó chỉ vài từ trước trong câu 15, có lẽ do đặt sai vị trí), thì “kẻ mai phục” đó chắc chắn chính là con rắn xảo quyệt, tức ma quỷ. Chính hắn là kẻ sẽ làm tăng thêm nỗi buồn khi nuôi dạy con cái. Đây là cách duy nhất chúng ta có thể giải thích tại sao ý niệm về “cái bẫy” hay “sự rình rập” vẫn bám chặt vào bối cảnh này.
+
+Nhưng một vấn đề khác đòi hỏi chúng ta lưu tâm trong câu 16, đó là từ chỉ sự thụ thai. Việc dịch từ nầy thật khó khăn vì từ Hê-bơ-rơ **HRN** không phải là cách viết chính xác của từ "thụ thai". Từ nầy được viết đúng chính tả là **HRJWN** trong Ru-tơ 4:13 và Ô-sê 9:11. Tuy nhiên, cách viết trong Sáng Thế Ký 3:16 lại thiếu hai mẫu tự, và các nguyên âm cũng rất khác thường. Hình thức nầy được các học giả từ điển uy tín như Brown, Driver và Briggs xem là một dạng rút gọn, hoặc thậm chí là một lỗi chính tả. Bản dịch Hy Lạp cổ xưa (được thực hiện vào thế kỷ thứ ba hoặc thứ hai trước Đấng Christ) lại dịch là **HGN**, mang nghĩa "than thở". Theo đó, ý nghĩa của mệnh đề nầy sẽ là: "Một cạm bẫy đã gia tăng nỗi sầu khổ và tiếng than thở của ngươi."
+
+Việc dịch như vậy có ý nghĩa gì? Vấn đề ở đây chỉ đơn giản là không thể hiểu lời nguyền này theo nghĩa rằng quyền quyết định thời điểm một người phụ nữ sẽ làm mẹ hoàn toàn nằm ngoài ý chí của người nữ, hay rằng chức năng này đã được đặt hoàn toàn và bắt buộc vào tay và ý chí của người nam.
+
+Hơn nữa, cần phải nhớ rằng tuyên bố này, dù chúng ta sẽ giải thích nó ra sao, vẫn nằm trong một phân đoạn rủa sả. Trong bất cứ trường hợp nào cũng không được xem nó mang tính quy phạm. Và nếu Kẻ Ác, chứ không phải Đức Chúa Trời, là nguồn cội của nỗi sầu khổ và tiếng than thở, thì càng cần thiết hơn để chúng ta cương quyết không gán bất kỳ tính quy phạm nào cho những lời lẽ như vậy, và cũng không được mô tả thử thách khi sinh nở hay gian nan khi nuôi dạy con trẻ là một điều ác bắt nguồn từ Đức Chúa Trời. Đức Chúa Trời không bao giờ là nguồn cội của điều ác; Ngài luôn muốn ban phước cho phụ nữ. Trái lại, chính Sa-tan là kẻ đã giăng bẫy nầy.
+
+Mệnh đề tiếp theo củng cố cho ý tưởng chúng ta vừa thảo luận khi thêm vào: "Ngươi sẽ sinh con trong nỗi sầu khổ [hoặc đau đớn]." Một lần nữa, hãy lưu ý rằng tự bản thân việc sinh con vốn là một phước hạnh đã được mô tả trong cái gọi là các trật tự sáng tạo ở Sáng Thế Ký 1:28. Nỗi sầu khổ không nằm ở sự thụ thai hay chính hành vi sinh nở, nhưng nằm trong toàn bộ tiến trình đưa con trẻ vào thế gian và dưỡng dục chúng nên những con người trọn vẹn trước mặt Đức Chúa Trời.

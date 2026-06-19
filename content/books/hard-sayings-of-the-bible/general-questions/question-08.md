@@ -1,5 +1,6 @@
 ---
 title: "8. Cụm từ 'Đức Giê-hô-va phán' của các tiên tri có nghĩa như thế nào?"
+slugs: "general-08"
 weight: 9
 ---
 

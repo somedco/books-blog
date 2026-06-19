@@ -1,5 +1,6 @@
 ---
 title: "10. Vì sao Tân Ước không trích dẫn chính xác Cựu Ước?"
+slugs: "general-10"
 weight: 11
 ---
 

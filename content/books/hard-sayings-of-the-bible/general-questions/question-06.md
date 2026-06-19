@@ -1,5 +1,6 @@
 ---
 title: "6. Niên đại các vua Cựu Ước có khớp với lịch sử?"
+slugs: "general-06"
 weight: 7
 ---
 
