@@ -1,6 +1,6 @@
 ---
 title: "1. Ai là người viết Kinh Thánh?"
-slugs: "general-01"
+slug: "general-01"
 weight: 2
 ---
 

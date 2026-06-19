@@ -1,6 +1,6 @@
 ---
 title: "12. Tại sao lại có tới Bốn sách Phúc Âm?"
-slugs: "general-12"
+slug: "general-12"
 weight: 13
 ---
 

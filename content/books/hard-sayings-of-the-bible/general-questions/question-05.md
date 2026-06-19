@@ -1,6 +1,6 @@
 ---
 title: "5. Số liệu trong Cựu Ước có sai sót không?"
-slugs: "general-05"
+slug: "general-05"
 weight: 6
 ---
 

@@ -1,6 +1,6 @@
 ---
 title: "2. Phép lạ Trong Kinh Thánh có thật không?"
-slugs: "general-02"
+slug: "general-02"
 weight: 3
 ---
 

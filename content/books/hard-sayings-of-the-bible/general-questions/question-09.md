@@ -1,6 +1,6 @@
 ---
 title: "9. Lời tiên tri trong Cựu Ước có chính xác?"
-slugs: "general-09"
+slug: "general-09"
 weight: 10
 ---
 

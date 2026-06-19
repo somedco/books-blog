@@ -1,6 +1,6 @@
 ---
 title: "7. Khảo cổ học có ủng hộ Lịch sử Kinh Thánh?"
-slugs: "general-07"
+slug: "general-07"
 weight: 8
 ---
 

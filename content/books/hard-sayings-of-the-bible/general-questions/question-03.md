@@ -1,6 +1,6 @@
 ---
 title: "3. Tại sao Đức Chúa Trời có vẻ giận dữ trong Cựu Ước và đầy tình yêu thương trong Tân Ước?"
-slugs: "general-03"
+slug: "general-03"
 weight: 4
 ---
 
