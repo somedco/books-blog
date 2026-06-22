@@ -18,5 +18,4 @@ Do đó, danh **Yahweh** được dùng khi Kinh Thánh muốn trình bày bản
 
 Theo đó, Sáng Thế Ký chương 1 dùng danh **Elohim** là hoàn toàn chính xác, vì vai trò Đấng Sáng Tạo toàn vũ trụ, mọi sinh vật và toàn thể nhân loại là điều chương này dạy dỗ. Tuy nhiên, chủ đề thu hẹp lại ngay trong Sáng Thế Ký 2-3; tại đây mô tả mối tương giao vô cùng thân mật và cá biệt của Đức Chúa Trời với cặp nhân loại đầu tiên, A-đam và Ê-va. Đức Chúa Trời được mô tả là đang đi dạo và trò chuyện với A-đam trong Vườn Ê-đen. Do đó, **Yahweh** được kết hợp với **Elohim** một cách thích hợp để chỉ ra rằng Đức **Elohim** của toàn bộ công trình sáng tạo giờ đây chính là Đức **Yahweh**, Đấng quan tâm cách thân mật đến việc duy trì mối tương giao cá nhân với những ai sẽ bước đi và trò chuyện cùng Ngài.
 
----
 [^1]: Quy ước trong các bản dịch tiếng Anh: danh này được viết hoa toàn bộ "LORD" hoặc viết hoa chữ cái đầu và cuối "LorD" để phân biệt với "Lord" là từ dịch sang một từ khác mang nghĩa "chúa tể"

@@ -5,7 +5,7 @@ params:
   bookCollapseSection: true
 ---
 
-# NHỮNG LỜI KHÓ HIỂU TRONG KINH THÁNH - HARD SAYINGS OF THE BIBLE
+# NHỮNG CHỖ KHÓ HIỂU TRONG KINH THÁNH - HARD SAYINGS OF THE BIBLE
 
 Với hơn 250.000 bản đã được in, bộ sách “Hard Sayings” đã khẳng định vị thế của mình trong lòng độc giả như một cẩm nang hữu ích để giải đáp những vấn đề khó hiểu trong Kinh Thánh. Bộ sách được khởi xướng với việc xuất bản cuốn *Những Lời Khó Hiểu của Chúa Jesus (The Hard Sayings of Jesus)* của F. F. Bruce vào năm 1983, tiếp theo là các tập khác ra mắt vào các năm 1988, 1989, 1991 và 1992.
 
