@@ -1,0 +1,25 @@
+---
+title: "14:18-19 Mên-chi-xê-đéc là ai?"
+slug: "genesis-25"
+weight: 125
+---
+
+Mên-chi-xê-đéc (*Melchizedek*) là một người Ca-na-an, nhưng ông được gọi là "thầy tế lễ của Đức Chúa Trời Chí Cao." Ngoài chức vụ tế lễ, ông cũng được mô tả là vua của Sa-lem (*Salem*), rõ ràng là ám chỉ tên rút gọn của Giê-ru-sa-lem (*Jerusalem*), nơi vào thời điểm đó bị người Ca-na-an chiếm đóng.
+
+Người ngoại bang này, người mà chúng ta không có bất kỳ thông tin nào trước đó, dù trong bản văn hay bất kỳ nơi nào khác, đã tiến đến để bày tỏ lòng tôn kính với Áp-ram. Ông mang theo bánh và rượu khi đi ra đón Áp-ram trên đường trở về sau chiến thắng đáng kinh ngạc của 318 gia nhân của vị tổ phụ trước bốn vua Lưỡng Hà. Khi làm vậy, vị vua kiêm thầy tế lễ này bày tỏ sự kính trọng đối với Áp-ram, nhưng ông thừa nhận rằng những gì đã được thực hiện chỉ có thể được quy cho Đức Chúa Trời Chí Cao.
+
+Đây là một bước ngoặt bất ngờ nhất, vì từ thế giới ngoại giáo thô bỉ của người Ca-na-an, không chỉ xuất hiện một người chia sẻ niềm tin và sự thờ phượng cùng một Đức Chúa Trời với Áp-ram, người thuộc dòng Sem, mà còn là một người ban phước cho vị tổ phụ mà Đức Chúa Trời đã ban phước. Áp-ram cũng công nhận phẩm giá tế lễ của vị vua kiêm thầy tế lễ người Ca-na-an này bằng cách dâng cho ông một phần mười.
+
+Tình huống này rất giống với trường hợp của Giê-trô trong Xuất Ê-díp-tô Ký chương 18. Ông cũng là một thầy tế lễ thờ phượng cùng Đức Chúa Trời mà Môi-se thờ phượng, nhưng ông cũng là một người Ma-đi-an gốc ngoại bang (Xuất Ê-díp-tô Ký 2:16; 3:1; 18:12). Rõ ràng là Đức Chúa Trời cũng đang kêu gọi một dân tộc mang danh Ngài từ giữa các dân ngoại, mặc dù Kinh Thánh hiếm khi dừng lại để suy ngẫm về hiện tượng này trong quá trình trình bày kế hoạch hứa hẹn của Đức Chúa Trời qua dân Do Thái.
+
+Vậy thì Mên-chi-xê-đéc là ai? Có phải ông là một sự hiện diện sớm của Đấng Christ trước khi nhập thể, hay như các nhà thần học gọi loại sự kiện này là một sự hiện thấy của Đấng Christ (*christophany*)? Hay ông là một hình bóng (*type*) của Đấng Christ, vì Thi-thiên 110:4 và Hê-bơ-rơ 6:20–7:21 liên kết chức tế lễ của Đấng Christ không phải với A-rôn và dòng tế lễ Lê-vi nổi tiếng trong Y-sơ-ra-ên, mà với Mên-chi-xê-đéc?
+
+Sự xuất hiện đột ngột và gần như bí ẩn của Melchizedek chính là điều mang lại cho ông nét vượt thời gian và độc đáo đó. Chắc chắn rằng văn bản này coi ông như một nhân vật lịch sử có thật, người đã tác động đến cuộc đời của vị tổ phụ trong Kinh Thánh vào một thời điểm vô cùng quan trọng trong hành trình phụng sự Đức Chúa Trời của ông.
+
+Nhưng Mên-chi-xê-đéc cũng có một khía cạnh hình bóng (*typological*) trong đặc tính của mình, không phải trong mọi khía cạnh của con người và đặc tính của ông, nhưng đáng kể nhất là thực tế rằng chúng ta hoàn toàn không biết gì về thân thế hay tuổi tác của ông. Thực tế này đặt ông ra ngoài tất cả các thầy tế lễ khác mà chúng ta được biết đến trong tường thuật Kinh Thánh. Vì vậy, tác giả sách Hê-bơ-rơ so sánh Mên-chi-xê-đéc với Chúa Giê-xu: "không cha, không mẹ, không gia phả, không có ngày bắt đầu hay ngày kết thúc của cuộc đời, giống như Con Đức Chúa Trời, người ấy tiếp tục làm thầy tế lễ đời đời" (Hê-bơ-rơ 7:3).
+
+Điều được nhấn mạnh, tất nhiên, là ghi chép Kinh Thánh không đề cập đến cha mẹ, tổ tiên, ngày sinh hay ngày chết của Mên-chi-xê-đéc. Theo nghĩa đó, ông khác với bất kỳ cá nhân nào khác được tìm thấy trong tường thuật Kinh Thánh. Thực tế này khiến ông trở nên độc nhất để trở thành một hình bóng của Đấng Christ. Với tư cách đó, ông đóng vai trò như một biểu tượng của sự vĩnh cửu. Chức tế lễ độc đáo của ông phản ánh hình ảnh về chức tế lễ vĩnh cửu và phổ quát của Chúa Giê-xu Christ.
+
+Điều này giải thích làm thế nào Đấng Mê-si có thể đến từ dòng dõi lời hứa của Áp-ram và cuối cùng từ chi phái Giu-đa, đồng thời cũng có thể là thầy tế lễ cũng như nhà tiên tri và vua. Đấng Mê-si không thể đến từ hai chi phái cùng một lúc, vừa từ Giu-đa (với tư cách là vua) vừa từ Lê-vi (với tư cách là thầy tế lễ). Nhưng Ngài đã giải quyết tình thế khó xử này bằng cách trở thành thầy tế lễ "lập lên không theo luật lệ của điều răn xác thịt, nhưng theo quyền phép của sự sống chẳng hay hư hay hết." (Hê-bơ-rơ 7:16).
+
+Cần phải nói thêm một điểm nữa: Áp-ram đã dâng một phần mười cho vị vua kiêm thầy tế lễ này, chứ không phải ngược lại. "Của lễ" mà Áp-ram dâng một phần mười là chiến lợi phẩm Áp-ram đã lấy được trong trận chiến. Đây là phản ứng của Áp-ram đối với lời dâng bánh và rượu của Mên-chi-xê-đéc và phước lành mà Mên-chi-xê-đéc đã ban—một phước lành thông thường đến từ người lớn hơn cho người nhỏ hơn. Kỳ lạ thay, như tác giả sách Hê-bơ-rơ chỉ ra (Hê-bơ-rơ 7:10), theo nghĩa này, Lê-vi đã dâng một phần mười và công nhận một chức tế lễ sẽ thay thế dòng dõi của chính mình ngay cả trước khi ông được sinh ra, vì "Lê-vi còn ở trong lòng tổ phụ mình" khi Áp-ram dâng một phần mười cho Mên-chi-xê-đéc.
