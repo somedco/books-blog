@@ -1,0 +1,21 @@
+---
+title: "9:12 Đức Chúa Trời làm Pha-ra-ôn cứng lòng?"
+slug: "exodus-09"
+weight: 209
+---
+
+Chủ đề “làm cứng lòng” xuất hiện hai mươi lần trong các chương 4 đến 14 của sách Xuất Ê-díp-tô. Tuy nhiên, khía cạnh gây băn khoăn nhất trong những câu Kinh Thánh này là trong mười trên hai mươi lần xuất hiện đó, chính Đức Chúa Trời được cho là Đấng đã làm cứng lòng Pha-ra-ôn. Thực tế này khiến nhiều độc giả Kinh Thánh băn khoăn, vì dường như Đức Chúa Trời là Đấng khởi xướng điều ác rồi lại quy trách nhiệm cho người khác. Liệu Đức Chúa Trời có khiến Pha-ra-ôn không thể đáp ứng được, rồi sau đó lại kết tội Pha-ra-ôn vì hành vi này không?
+
+Đức Chúa Trời đã hai lần tiên tri rằng Ngài sẽ làm cứng lòng Pha-ra-ôn. Hai lời tiên tri này đã được ban cho Môi-se trước khi cuộc đối đầu bắt đầu (Xuất Ê-díp-tô Ký 4:21; 7:3). Tuy nhiên, nếu hai sự kiện này dường như đã định đoạt số phận bất lợi cho Pha-ra-ôn, thì cần phải nhớ rằng tất cả các lời tiên tri của Đức Chúa Trời dành cho các tiên tri của Ngài đều kèm theo một điều kiện ngầm là “trừ khi ngươi ăn năn”. Rất ít lời tiên tri là vô điều kiện; trong số ít ỏi đó có giao ước của Đức Chúa Trời với các mùa trong Sáng Thế Ký 8:22; giao ước của Ngài với Áp-ra-ham (*Abraham*), Y-sác (*Isaac*), Gia-cốp (*Jacob*) và Đa-vít (*David*); giao ước mới của Ngài; và giao ước của Ngài với trời mới và đất mới trong Ê-sai (*Isaiah*) 65–66.
+
+Nói chung, chỉ có những lời hứa liên quan đến thiên nhiên và sự cứu rỗi của chúng ta là không phụ thuộc vào chúng ta; tất cả những lời hứa còn lại đều giống như thông điệp của Giô-na (*Jonah*) gửi đến Ni-ni-ve (*Nineveh*). Mặc dù Giô-na chưa bao giờ ám chỉ rằng sự hủy diệt sắp xảy ra của Ni-ni-ve (chỉ còn bốn mươi ngày nữa) có thể tránh được nhờ sự ăn năn, nhưng vua đã cho rằng điều đó là đúng, và nỗi lo sợ tồi tệ nhất của Giô-na đã trở thành hiện thực: dân tộc ấy đã ăn năn, và những người A-si-ri (*Assyrian*) man rợ đã không phải chịu hậu quả xứng đáng!
+
+Trong trường hợp của Pha-ra-ôn, chính Pha-ra-ôn đã khởi xướng toàn bộ quá trình này bằng cách làm cứng lòng mình mười lần trong năm tai vạ đầu tiên (Xuất 7:13, 14, 22; 8:15, 19, 32; 9:7, 34, 35; và 13:15). Luôn luôn và chỉ có duy nhất Pha-ra-ôn là người làm cứng lòng mình trong suốt các tai vạ này! Thay vì để công việc của Đức Chúa Trời làm mềm lòng mình trong những tai vạ này và kết luận rằng Đức Giê-hô-va là Đức Chúa Trời chân thật duy nhất, Pha-ra-ôn lại lấy bằng chứng này làm cơ sở để làm cứng lòng mình. Trong khi đó, các tai vạ hẳn đã có tác động nhất định đến dân chúng Ai Cập nói chung, bởi khi dân Y-sơ-ra-ên rời khỏi Ai Cập, họ được “nhiều người khác” đi cùng (Xuất 12:38). Ngay cả các thuật sĩ của Pha-ra-ôn cũng phải thừa nhận: “Đây là ngón tay [công việc] của Đức Chúa Trời” (Xuất 8:19), và họ đã rút lui khỏi cuộc so tài với Đức Chúa Trời hằng sống.
+
+Có vẻ như Pha-ra-ôn đã chạm đến giới hạn của sự tự do bị hạn chế của mình trong cơn tai họa thứ năm, bởi vì sau thời điểm đó, trong năm cơn tai họa cuối cùng, chính Đức Chúa Trời là Đấng liên tục khiến lòng ông trở nên cứng cỏi (Xuất Ê-díp-tô Ký 9:12; 10:1, 20, 27; 11:10; 14:4, 8, 17).
+
+Đức Chúa Trời không phải là tác giả của điều ác. Không có dấu hiệu nào cho thấy Ngài đã vi phạm quyền tự do ý chí của Pha-ra-ôn hay thao túng Pha-ra-ôn để trút thêm sự trừng phạt lên dân Ai Cập. Đức Chúa Trời không phản đối sự hợp tác của các vị vua ngoại đạo. Pha-ra-ôn có thể đã hợp tác với Đức Chúa Trời giống như Si-ru (*Cyrus*) đã làm trong thời kỳ lưu đày tại Babylon; Đức Chúa Trời vẫn được tôn vinh khi vị vua đó tự mình quyết định cho dân Y-sơ-ra-ên trở về từ Babylon. Chính Pha-ra-ôn, không phải Đức Chúa Trời, mới là người đáng bị đổ lỗi cho việc cứng lòng của chính mình.
+
+Cần lưu ý rằng chủ đề này lại được đề cập đến trong Phục Truyền Luật Lệ Ký 2:30, Giô-suê 11:20 và 1 Sa-mu-ên 6:6. Mặc dù những đề cập này ngắn gọn hơn, nhưng có thể khẳng định rằng quá trình truy cứu trách nhiệm và trách nhiệm của con người cũng công bằng không kém so với trường hợp của Pha-ra-ôn.
+
+*Xem thêm giải thích cho [1 Sa-mu-ên 2:25](); [Ê-sai 63:17]().*
