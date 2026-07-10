@@ -1,0 +1,25 @@
+---
+title: "22:25 Việc tính lãi có được phép không?"
+slug: "exodus-22"
+weight: 222
+---
+
+Việc bàn luận về tiền bạc khiến bạn bè xa cách, và khi nói đến lãi suất từ góc độ Kinh Thánh, điều này lại khiến các nhà giải thích chia rẽ! Chắc chắn rằng, theo Thi Thiên 15:5, người “cho vay tiền mà không tính lãi” là một người kính sợ Đức Chúa Trời, người cũng “không nhận hối lộ để hại người vô tội.” Tuy nhiên, điều không dễ nhận ra ngay là người vay thường được mô tả là người đang gặp khó khăn và không thể tự lo cho bản thân. Điểm này được nêu rõ trong hai trong ba đoạn Kinh Thánh chính về chủ đề này, cụ thể là Xuất Ê-díp-tô Ký 22:25 và Lê-vi Ký 25:35–37. (Đoạn thứ ba là Phục truyền 23:19–20.)
+
+Lý do cho sự cấm đoán nghiêm khắc như vậy đối với việc tính lãi là vì có quá nhiều người trong Y-sơ-ra-ên đã sử dụng phương pháp này để tránh giúp đỡ người nghèo và đồng bào của họ. Phục-truyền 23:20 đã nói, "Ngươi có thể lấy lãi của người ngoại quốc." Rõ ràng điều này cũng giống như việc tính lãi cho một khoản vay kinh doanh hoặc đầu tư. Người ngoại quốc thuộc về loại "kiều dân cư trú" đã định cư lâu dài giữa dân Y-sơ-ra-ên. Nhưng nơi luật pháp bảo vệ "kiều dân cư trú" với cùng các đặc quyền dành cho người Y-sơ-ra-ên bản xứ, chúng ta có thể mong đợi các sự cấm đoán tương tự đối với việc cho vay có lãi đối với người nghèo (xem Lê-vi Ký 25:35).
+
+Tất nhiên, mọi hệ thống đạo đức đều lên án việc áp dụng lãi suất quá cao. Châm Ngôn 28:8 cảnh báo: “Kẻ nào nhờ lời và sự ăn lời quá phép mà làm cho của cải mình thêm lên, tất chứa để dành của ấy cho người có lòng thương xót kẻ nghèo khổ.” Tiên tri Ê-xê-chi-ên cũng mô tả “người công chính” là người “không cho vay nặng lãi hay thu lãi suất quá cao” (Ê-xê-chi-ên 18:8, xem thêm 18:13, 17; 22:12).
+
+Điều đã thay đổi quan điểm trong thời hiện đại về các hình thức thu lãi hợp pháp chính là sự thay đổi trong cách nhìn nhận về bản chất và cách sử dụng tiền bạc. Trước hết, ngày nay các khoản vay chủ yếu phục vụ cho những mục đích hoàn toàn khác biệt. Vào thời đó, chỉ khi rơi vào tình huống cực kỳ khẩn cấp và túng quẫn, người ta mới buộc phải đi vay. Trong những trường hợp đó, điều mà mọi người nợ nhau chính là lòng trắc ẩn. Mọi người phải giúp đỡ lẫn nhau, chứ không sử dụng tai họa của người lân cận mình như cơ hội để thu lợi nhuận nhanh chóng và bất chính.
+asd
+Trong thời hiện đại, việc vay vốn chủ yếu được xem là phương tiện để tăng vốn kinh doanh. Nếu không có nguồn vốn tăng thêm, người ta có thể không đủ khả năng tạo ra doanh thu cao hơn. Tuy nhiên, vào thời cổ đại, những vấn đề như vậy chưa nghiêm trọng như ngày nay. Khi đó, việc vay vốn hầu như chỉ nhằm mục đích giải quyết tình trạng khốn cùng và nghèo đói cực độ.
+
+Mặc dù tiếng Hê-bơ-rơ sử dụng hai thuật ngữ khác nhau để chỉ lãi suất, nhưng khó có thể phân biệt được giữa chúng, chẳng hạn như giữa khoản vay dài hạn và ngắn hạn, hay giữa mức lãi suất cắt cổ và mức lợi nhuận hợp lý khi cho vay tiền. Cũng không thể nói rằng một thuật ngữ liên quan đến số tiền được cho vay còn thuật ngữ kia liên quan đến phương pháp tính toán khoản vay.
+
+Có thể kết luận một cách hợp lý rằng việc thu lãi đã và vẫn được chấp nhận đối với những hoạt động kinh doanh không nhằm mục đích trốn tránh nghĩa vụ đối với người nghèo. Luận điểm này được củng cố bởi việc Chúa Giê-xu ám chỉ và dường như tán thành việc thu lãi từ các hoạt động thương mại trong Ma-thi-ơ 25:27 và Lu-ca 19:23.
+
+Việc cho một nhà thờ hoặc một tổ chức phi lợi nhuận Cơ đốc giáo vay tiền có tính lãi cũng đang là chủ đề gây tranh cãi gay gắt. Một số người cảnh báo rằng các tổ chức truyền giáo kêu gọi “đầu tư” với cam kết trả lại vốn gốc kèm lãi suất có thể sẽ phải trích tiền từ các khoản dâng hiến để trả lãi, từ đó coi như là cướp của Đức Chúa Trời.
+
+Nếu lý do cấm mọi khoản vay trong Hội Thánh là để người tin Chúa không phải trả lãi, thì tôi phải phản đối, vì đó không phải là lý do theo Kinh Thánh. Kinh Thánh quan tâm đến việc chúng ta trốn tránh trách nhiệm đối với những người nghèo trong cộng đồng của mình. Việc cấm tuyệt đối việc cho vay có lãi đối với người tin Chúa sẽ không chịu được sự kiểm chứng theo Kinh Thánh. Điều này không có nghĩa là không có những cạm bẫy khác trong toàn bộ cuộc thảo luận này. Chúng vẫn tồn tại. Việc lạm dụng tiền dâng phần mười sẽ là một vấn đề cực kỳ nghiêm trọng. Tuy nhiên, vì các hoạt động mục vụ dường như phát triển tỷ lệ thuận với cơ sở vật chất của họ, một nhóm có thể quyết định xây dựng trước để mở rộng cả hoạt động mục vụ lẫn cơ sở ủng hộ của mình. Sự mở rộng như vậy không chỉ là điều cần thiết mà còn có thể là việc thực hành quản lý tài sản theo tinh thần Cơ đốc giáo một cách chính đáng và có trách nhiệm.
+
+Kinh Thánh chủ yếu bày tỏ lo ngại về việc cho vay vì mục đích trục lợi, vốn lẽ ra phải là khoản vay từ thiện không tính lãi. Một khi yêu cầu đó đã được đáp ứng, các nguyên tắc khác trong đạo đức Kitô giáo cũng phải được tuân thủ, nhưng áp lực sẽ không còn là việc lên án mọi hình thức thu lãi nói chung nữa.
